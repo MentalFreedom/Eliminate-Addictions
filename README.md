@@ -1,2 +1,2 @@
-# EliminateAddictions
-affirmations &amp; subliminal scripts for eliminating addictions.
+# Eliminate Addictions
+Affirmations &amp; subliminal scripts for eliminating addictions.
